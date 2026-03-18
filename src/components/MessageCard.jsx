@@ -20,7 +20,7 @@ From 17th December 2021 — the day we met for the first time because of him.
 
 It’s been 51 months - that’s 1,553 days, or 37,272 hours of knowing you… and I think I’ve remembered every time we met. Our Tom and Jerry fights are the most, most memorable ones to me. And I still have the scar on my hand from when you pinched me lmao😂.
 
-You are such an adorable person, and I’m very lucky that I got you as my best friend. You are not only my best friend, you are my guide. If you hadn’t suggested I learn React, maybe I would be doing some non-IT job or IDK. I know you won’t take this credit… hmm, but yes, you have to take it because it’s true.
+You are such an adorable person, and I’m very lucky that I got you as my best friend. You are not only my best friend, you are my guide. If you hadn’t told me to learn React, maybe I would be doing some non-IT job or IDK. I know you won’t take this credit… hmm, but yes, you have to take it because it’s true.
 
 I am showing you the purest version of myself. I think nobody else knows this version of me, and I like it this way when I’m with you. And I never feel bored with you… ento, maybe I am the one who makes you feel bored 😅. And I think we have watched a lot of movies and series together, more than anyone else lol 😂.
 
